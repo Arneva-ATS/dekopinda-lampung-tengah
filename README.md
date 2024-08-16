@@ -1,1 +1,1 @@
-# dekopinda-lampung-tengah
+# dekopinda-karanganyar
